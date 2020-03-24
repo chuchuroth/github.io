@@ -1,5 +1,5 @@
 # Does love really exist? Or is it just a hallucination?
-### *it doesn't matter what we want, once we get it, then we want soemthing else...*
+### *it doesn't matter what we want, once we get it, then we want something else...*
 ---------------------------------------------------------------------------------------------------------------------
 We human beings want/need lots of things, home, job, sex, title, sense of value, respect from others...and maybe, love.
 The question I'm interested in is : all those 'human needs', will it last? Or could it be, once we get it, we then want something else instead?
