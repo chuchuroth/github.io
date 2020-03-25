@@ -1,4 +1,4 @@
-#Tell Me What You Say Yes to, and I’ll Tell You Who You Are
+# Tell Me What You Say Yes to, and I’ll Tell You Who You Are
 
 “The difference between successful people and very successful people is that very successful people say no to almost everything.” — Warren Buffett
 
